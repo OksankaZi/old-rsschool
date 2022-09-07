@@ -1,1 +1,1 @@
-# rsschool-cv
+https://oksankazi.github.io/rsschool-cv/
